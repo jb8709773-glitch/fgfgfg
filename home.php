@@ -1864,7 +1864,6 @@ src="https://www.facebook.com/tr?id=423063207362401&ev=PageView&noscript=1"
     <a href="https://jurnal.atidewantara.ac.id/">JAYA88</a>
     <a href="https://jurnal.atidewantara.ac.id/">HOKI88</a>
     <a href="https://jurnal.atidewantara.ac.id/">TOTO303</a>
-    <a href="https://jurnal.atidewantara.ac.id/">JOSTOTO</a>
     <a href="https://jurnal.atidewantara.ac.id/">MACANWIN</a>
     <a href="https://jurnal.atidewantara.ac.id/">SLOT 200 PERAK</a>
     <a href="https://jurnal.atidewantara.ac.id/">SLOT 200 RUPIAH</a>
@@ -4400,7 +4399,6 @@ src="https://www.facebook.com/tr?id=423063207362401&ev=PageView&noscript=1"
     <a href="https://jurnal.atidewantara.ac.id/">888duren777bet.space -7</a>
     <a href="https://jurnal.atidewantara.ac.id/">mahjong339vip.online -win</a>
     <a href="https://jurnal.atidewantara.ac.id/">mahjongwa230.online -a</a>
-    <a href="https://jurnal.atidewantara.ac.id/">mahjong --situs(jostoto)</a>
     <a href="https://jurnal.atidewantara.ac.id/">zeuswin808.online -vip</a>
     <a href="https://jurnal.atidewantara.ac.id/">zeuswin858.online -wd5jt</a>
     <a href="https://jurnal.atidewantara.ac.id/">zeus369mantap.com -vvip-</a>
@@ -4479,7 +4477,6 @@ src="https://www.facebook.com/tr?id=423063207362401&ev=PageView&noscript=1"
     <a href="https://jurnal.atidewantara.ac.id/">bpjs177top.site -mahjong</a>
     <a href="https://jurnal.atidewantara.ac.id/">situsbocoran80.online -wl</a>
     <a href="https://jurnal.atidewantara.ac.id/">situsqq108.online -hk</a>
-    <a href="https://jurnal.atidewantara.ac.id/">situs gacoran --now(jostotohk.com)</a>
     <a href="https://jurnal.atidewantara.ac.id/">situs mahjong -pp(betSLOT777)</a>
     <a href="https://jurnal.atidewantara.ac.id/">situsmicrostar88s.online -</a>
     <a href="https://jurnal.atidewantara.ac.id/">jackpot108depo.online -win</a>
@@ -4791,7 +4788,6 @@ src="https://www.facebook.com/tr?id=423063207362401&ev=PageView&noscript=1"
     <a href="https://jurnal.atidewantara.ac.id/">top818win.online -</a>
     <a href="https://jurnal.atidewantara.ac.id/">judionlineduren777.space -77-</a>
     <a href="https://jurnal.atidewantara.ac.id/">888 --  login gempa777</a>
-    <a href="https://jurnal.atidewantara.ac.id/">slot mahjong -- daftar jostoto</a>
     <a href="https://jurnal.atidewantara.ac.id/">angkasa808.online -</a>
     <a href="https://jurnal.atidewantara.ac.id/">casinolive808.online -win</a>
     <a href="https://jurnal.atidewantara.ac.id/">situsjp308.online -</a>
@@ -4972,7 +4968,6 @@ src="https://www.facebook.com/tr?id=423063207362401&ev=PageView&noscript=1"
     <a href="https://jurnal.atidewantara.ac.id/">link gaming --resmi(tajirnow.com)</a>
     <a href="https://jurnal.atidewantara.ac.id/">slot mahjong --t7(tante777)</a>
     <a href="https://jurnal.atidewantara.ac.id/">slot mahjong --login(idrhoki138)</a>
-    <a href="https://jurnal.atidewantara.ac.id/">slot mahjong --daftar(jostoto)</a>
     <a href="https://jurnal.atidewantara.ac.id/">agen108maxwin.online -</a>
     <a href="https://jurnal.atidewantara.ac.id/">gacorwin56.online -max</a>
     <a href="https://jurnal.atidewantara.ac.id/">mahjong --slot(gempa777)</a>
@@ -5141,7 +5136,6 @@ src="https://www.facebook.com/tr?id=423063207362401&ev=PageView&noscript=1"
     <a href="https://jurnal.atidewantara.ac.id/">slot98slt.online</a>
     <a href="https://jurnal.atidewantara.ac.id/">slothobicuan88a.online</a>
     <a href="https://jurnal.atidewantara.ac.id/">lotvip878.online</a>
-    <a href="https://jurnal.atidewantara.ac.id/">slot mahjong --login(jostoto)</a>
     <a href="https://jurnal.atidewantara.ac.id/">linkgacor989.online</a>
     <a href="https://jurnal.atidewantara.ac.id/">linkjago79c.online</a>
     <a href="https://jurnal.atidewantara.ac.id/">linkraja132.online -</a>
@@ -5181,7 +5175,6 @@ src="https://www.facebook.com/tr?id=423063207362401&ev=PageView&noscript=1"
     <a href="https://jurnal.atidewantara.ac.id/">slotbelut77.online -</a>
     <a href="https://jurnal.atidewantara.ac.id/">slot1001win.online -</a>
     <a href="https://jurnal.atidewantara.ac.id/">SLOT7777enakcuanjhepe.site -</a>
-    <a href="https://jurnal.atidewantara.ac.id/">slot mahjong --(jostoto)</a>
     <a href="https://jurnal.atidewantara.ac.id/">mahjongwah305d.com -</a>
     <a href="https://jurnal.atidewantara.ac.id/">slot gaming --dewisri88</a>
     <a href="https://jurnal.atidewantara.ac.id/">mahjong --www(motowin77)</a>
@@ -5399,7 +5392,6 @@ src="https://www.facebook.com/tr?id=423063207362401&ev=PageView&noscript=1"
     <a href="https://jurnal.atidewantara.ac.id/">judi slot login(paus4d)</a>
     <a href="https://jurnal.atidewantara.ac.id/">judi bola winstar138</a>
     <a href="https://jurnal.atidewantara.ac.id/">situs gacor ya(japri138)</a>
-    <a href="https://jurnal.atidewantara.ac.id/">situs gacor jostoto</a>
     <a href="https://jurnal.atidewantara.ac.id/">situs gacor arena333</a>
     <a href="https://jurnal.atidewantara.ac.id/">slot qris 711</a>
     <a href="https://jurnal.atidewantara.ac.id/">situs slot slotjos</a>
@@ -5575,14 +5567,12 @@ src="https://www.facebook.com/tr?id=423063207362401&ev=PageView&noscript=1"
     <a href="https://jurnal.atidewantara.ac.id/">slot thailand solo(duren777)</a>
     <a href="https://jurnal.atidewantara.ac.id/">slot gacor microstar88</a>
     <a href="https://jurnal.atidewantara.ac.id/">slot gacor dewakoin99.it</a>
-    <a href="https://jurnal.atidewantara.ac.id/">alternatif jostoto</a>
     <a href="https://jurnal.atidewantara.ac.id/">slot mahjong terbaik(duren777)</a>
     <a href="https://jurnal.atidewantara.ac.id/">slot mahjong (bigpot88)</a>
     <a href="https://jurnal.atidewantara.ac.id/">slot mahjong offline</a>
     <a href="https://jurnal.atidewantara.ac.id/">slot qris golgoal55</a>
     <a href="https://jurnal.atidewantara.ac.id/">slot terbaru gacor(bisabet)</a>
     <a href="https://jurnal.atidewantara.ac.id/">slot gacor s8suria88</a>
-    <a href="https://jurnal.atidewantara.ac.id/">link gacor bonus(jostoto)</a>
     <a href="https://jurnal.atidewantara.ac.id/">situs official jago79.com</a>
     <a href="https://jurnal.atidewantara.ac.id/">WDBOS bigpot88</a>
     <a href="https://jurnal.atidewantara.ac.id/">judi slot login(jajantogel)</a>
@@ -5995,7 +5985,6 @@ src="https://www.facebook.com/tr?id=423063207362401&ev=PageView&noscript=1"
     <a href="https://jurnal.atidewantara.ac.id/">situsjpdelta.online -</a>
     <a href="https://jurnal.atidewantara.ac.id/">situsgacor697.online -</a>
     <a href="https://jurnal.atidewantara.ac.id/">slot mahjong --sakti123</a>
-    <a href="https://jurnal.atidewantara.ac.id/">slot mahjong --en(jostoto)</a>
     <a href="https://jurnal.atidewantara.ac.id/">sbobet888aku.online -</a>
     <a href="https://jurnal.atidewantara.ac.id/">tokekwin88jp.online -</a>
     <a href="https://jurnal.atidewantara.ac.id/">tokekwslot77.space -</a>
@@ -6028,7 +6017,6 @@ src="https://www.facebook.com/tr?id=423063207362401&ev=PageView&noscript=1"
     <a href="https://jurnal.atidewantara.ac.id/">olxslotto789.online -</a>
     <a href="https://jurnal.atidewantara.ac.id/">olympus234win.online -</a>
     <a href="https://jurnal.atidewantara.ac.id/">olxtogel654.online -</a>
-    <a href="https://jurnal.atidewantara.ac.id/">situs gacoran --about(jostotohk.com)</a>
     <a href="https://jurnal.atidewantara.ac.id/">situsolympusmaxwin.online -</a>
     <a href="https://jurnal.atidewantara.ac.id/">depositduren777jepe.space -jep</a>
     <a href="https://jurnal.atidewantara.ac.id/">depositduren777jepe.space -</a>
@@ -6195,7 +6183,6 @@ src="https://www.facebook.com/tr?id=423063207362401&ev=PageView&noscript=1"
     <a href="https://jurnal.atidewantara.ac.id/">pgsoftresmi24jam online</a>
     <a href="https://jurnal.atidewantara.ac.id/">badak177link.online -</a>
     <a href="https://jurnal.atidewantara.ac.id/">badak178go.online -</a>
-    <a href="https://jurnal.atidewantara.ac.id/">mahjong --(jostoto)slot</a>
     <a href="https://jurnal.atidewantara.ac.id/">SLOT7778mahjong2.world -</a>
     <a href="https://jurnal.atidewantara.ac.id/">link mahjong -- rajadewa138</a>
     <a href="https://jurnal.atidewantara.ac.id/">situs mahjong -gg(7meter)</a>
@@ -6262,7 +6249,6 @@ src="https://www.facebook.com/tr?id=423063207362401&ev=PageView&noscript=1"
     <a href="https://jurnal.atidewantara.ac.id/">link gaming --about(isototo)</a>
     <a href="https://jurnal.atidewantara.ac.id/">slot thailand 77superslot resmi</a>
     <a href="https://jurnal.atidewantara.ac.id/">situs slotransats --who(gempa777)</a>
-    <a href="https://jurnal.atidewantara.ac.id/">slot mahjong -- agen jostoto</a>
     <a href="https://jurnal.atidewantara.ac.id/">slotjp313.online -yuk</a>
     <a href="https://jurnal.atidewantara.ac.id/">link gacoran --resmi(evohoki.com)</a>
     <a href="https://jurnal.atidewantara.ac.id/">slot mahjong -- kastoto</a>
@@ -6382,7 +6368,6 @@ src="https://www.facebook.com/tr?id=423063207362401&ev=PageView&noscript=1"
     <a href="https://jurnal.atidewantara.ac.id/">jackpotjos88.online -</a>
     <a href="https://jurnal.atidewantara.ac.id/">jnetoto77new.online -</a>
     <a href="https://jurnal.atidewantara.ac.id/">mahjongbet122.online -</a>
-    <a href="https://jurnal.atidewantara.ac.id/">slot mahjong --game(jostoto)</a>
     <a href="https://jurnal.atidewantara.ac.id/">slot gacor online rajadewa138</a>
     <a href="https://jurnal.atidewantara.ac.id/">wdbos15win.online -</a>
     <a href="https://jurnal.atidewantara.ac.id/">pragmaticwsg1st world</a>
@@ -6424,7 +6409,6 @@ src="https://www.facebook.com/tr?id=423063207362401&ev=PageView&noscript=1"
     <a href="https://jurnal.atidewantara.ac.id/">linkmahjong8800.online -</a>
     <a href="https://jurnal.atidewantara.ac.id/">mawartop77.online -</a>
     <a href="https://jurnal.atidewantara.ac.id/">bandarsoccer link alternatif</a>
-    <a href="https://jurnal.atidewantara.ac.id/">slot mahjong --rtp(jostoto)</a>
     <a href="https://jurnal.atidewantara.ac.id/">togel cc komunitas</a>
     <a href="https://jurnal.atidewantara.ac.id/">jackpotwin356 com</a>
     <a href="https://jurnal.atidewantara.ac.id/">gopay303win.site -</a>
@@ -6441,7 +6425,6 @@ src="https://www.facebook.com/tr?id=423063207362401&ev=PageView&noscript=1"
     <a href="https://jurnal.atidewantara.ac.id/">sbobet885.store -</a>
     <a href="https://jurnal.atidewantara.ac.id/">pragmatic888.online -</a>
     <a href="https://jurnal.atidewantara.ac.id/">slot mahjong --rtp(betslots88)</a>
-    <a href="https://jurnal.atidewantara.ac.id/">slot mahjong --situs(jostoto)</a>
     <a href="https://jurnal.atidewantara.ac.id/">homebet88cuan.online -</a>
     <a href="https://jurnal.atidewantara.ac.id/">link gaming --login(sloto89.com)</a>
     <a href="https://jurnal.atidewantara.ac.id/">link gacorans --betslots88.com</a>
@@ -6456,7 +6439,6 @@ src="https://www.facebook.com/tr?id=423063207362401&ev=PageView&noscript=1"
     <a href="https://jurnal.atidewantara.ac.id/">maxwin bet 1000 berapa rupiah</a>
     <a href="https://jurnal.atidewantara.ac.id/">maxwin bet 800 berapa rupiah</a>
     <a href="https://jurnal.atidewantara.ac.id/">maxwin bet 6000 berapa rupiah</a>
-    <a href="https://jurnal.atidewantara.ac.id/">mahjong --slot(jostoto)</a>
     <a href="https://jurnal.atidewantara.ac.id/">slot mahjong --(gempa777)</a>
     <a href="https://jurnal.atidewantara.ac.id/">mawartogel88.online -</a>
     <a href="https://jurnal.atidewantara.ac.id/">link gaming --(gempa777)</a>
@@ -6840,7 +6822,6 @@ src="https://www.facebook.com/tr?id=423063207362401&ev=PageView&noscript=1"
     <a href="https://jurnal.atidewantara.ac.id/">slothobicuan79.online --</a>
     <a href="https://jurnal.atidewantara.ac.id/">wd99lancar.online -</a>
     <a href="https://jurnal.atidewantara.ac.id/">bentoslot333.online -</a>
-    <a href="https://jurnal.atidewantara.ac.id/">mahjongjostoto.online -</a>
     <a href="https://jurnal.atidewantara.ac.id/">maxwintop118.site -</a>
     <a href="https://jurnal.atidewantara.ac.id/">sbobet880.com -</a>
     <a href="https://jurnal.atidewantara.ac.id/">spacemanwin11.online -</a>
@@ -6875,7 +6856,6 @@ src="https://www.facebook.com/tr?id=423063207362401&ev=PageView&noscript=1"
     <a href="https://jurnal.atidewantara.ac.id/">slotwin212.online -</a>
     <a href="https://jurnal.atidewantara.ac.id/">slotwin2026.online -</a>
     <a href="https://jurnal.atidewantara.ac.id/">slotplaywin123 3d online</a>
-    <a href="https://jurnal.atidewantara.ac.id/">mahjongjostoto.online - -</a>
     <a href="https://jurnal.atidewantara.ac.id/">bos989win.online -</a>
     <a href="https://jurnal.atidewantara.ac.id/">surgawin1888.com -</a>
     <a href="https://jurnal.atidewantara.ac.id/">surgawin288q.com -</a>
@@ -6970,7 +6950,6 @@ src="https://www.facebook.com/tr?id=423063207362401&ev=PageView&noscript=1"
     <a href="https://jurnal.atidewantara.ac.id/">bonanza188slot.org -jp</a>
     <a href="https://jurnal.atidewantara.ac.id/">mahjong336vip.online -win</a>
     <a href="https://jurnal.atidewantara.ac.id/">mahjong365vip.online -win</a>
-    <a href="https://jurnal.atidewantara.ac.id/">mahjong --online(jostoto)</a>
     <a href="https://jurnal.atidewantara.ac.id/">wdbos305.online -vip</a>
     <a href="https://jurnal.atidewantara.ac.id/">depobos77win.online -wd50jt</a>
     <a href="https://jurnal.atidewantara.ac.id/">depobostoto33.online -jp</a>
@@ -7281,9 +7260,7 @@ src="https://www.facebook.com/tr?id=423063207362401&ev=PageView&noscript=1"
     <a href="https://jurnal.atidewantara.ac.id/">link mahjong --nagatoto168</a>
     <a href="https://jurnal.atidewantara.ac.id/">situs gaming -- 1 rajadewa138 com</a>
     <a href="https://jurnal.atidewantara.ac.id/">situs gaming -- 138 rajadewa</a>
-    <a href="https://jurnal.atidewantara.ac.id/">situs mahjong --login(jostoto)</a>
     <a href="https://jurnal.atidewantara.ac.id/">situs mahjong --18hoki</a>
-    <a href="https://jurnal.atidewantara.ac.id/">situs mahjong --pg(jostoto)</a>
     <a href="https://jurnal.atidewantara.ac.id/">agen --777(motowin77)</a>
     <a href="https://jurnal.atidewantara.ac.id/">mahjong resmi rajacuan69</a>
     <a href="https://jurnal.atidewantara.ac.id/">link gaming --pg(pragmatic77)</a>
@@ -7428,7 +7405,6 @@ src="https://www.facebook.com/tr?id=423063207362401&ev=PageView&noscript=1"
     <a href="https://jurnal.atidewantara.ac.id/">rajamenang99.online -</a>
     <a href="https://jurnal.atidewantara.ac.id/">homebet88gacor.world -</a>
     <a href="https://jurnal.atidewantara.ac.id/">toto567win.online -</a>
-    <a href="https://jurnal.atidewantara.ac.id/">situs mahjong --(jostoto)</a>
     <a href="https://jurnal.atidewantara.ac.id/">depo25jackpot.online -</a>
     <a href="https://jurnal.atidewantara.ac.id/">pgzeus118.online -</a>
     <a href="https://jurnal.atidewantara.ac.id/">SLOT777max login</a>
@@ -7487,11 +7463,6 @@ src="https://www.facebook.com/tr?id=423063207362401&ev=PageView&noscript=1"
     <a href="https://jurnal.atidewantara.ac.id/">jaya707win.online -</a>
     <a href="https://jurnal.atidewantara.ac.id/">gacorkenzobet.com -</a>
     <a href="https://jurnal.atidewantara.ac.id/">bigwin707.online -</a>
-    <a href="https://jurnal.atidewantara.ac.id/">rtp jostoto</a>
-    <a href="https://jurnal.atidewantara.ac.id/">jostoto login</a>
-    <a href="https://jurnal.atidewantara.ac.id/">jostoto link</a>
-    <a href="https://jurnal.atidewantara.ac.id/">jostoto daftar</a>
-    <a href="https://jurnal.atidewantara.ac.id/">jostoto alternatif</a>
     <a href="https://jurnal.atidewantara.ac.id/">lunatogel link</a>
     <a href="https://jurnal.atidewantara.ac.id/">lunatogel login</a>
     <a href="https://jurnal.atidewantara.ac.id/">lunatogel daftar</a>
@@ -7735,7 +7706,6 @@ src="https://www.facebook.com/tr?id=423063207362401&ev=PageView&noscript=1"
     <a href="https://jurnal.atidewantara.ac.id/">link gaming --new(rajadewa138.com)</a>
     <a href="https://jurnal.atidewantara.ac.id/">situsplaywin1233a.online --</a>
     <a href="https://jurnal.atidewantara.ac.id/">situs gaming --com(idrhoki138.com)</a>
-    <a href="https://jurnal.atidewantara.ac.id/">situs mahjong --jostoto</a>
     <a href="https://jurnal.atidewantara.ac.id/">situs gaming --new(rajadewa138.com)</a>
     <a href="https://jurnal.atidewantara.ac.id/">linktotoslot.online -</a>
     <a href="https://jurnal.atidewantara.ac.id/">slot gaming --new(rajadewa138.com)</a>
@@ -10786,7 +10756,6 @@ src="https://www.facebook.com/tr?id=423063207362401&ev=PageView&noscript=1"
     <a href="https://jurnal.atidewantara.ac.id/">KANTOR4D</a>
     <a href="https://jurnal.atidewantara.ac.id/">maxwin123pro.online -</a>
     <a href="https://jurnal.atidewantara.ac.id/">slot online --satu(motowin77</a>
-    <a href="https://jurnal.atidewantara.ac.id/">jostoto368.shop -</a>
     <a href="https://jurnal.atidewantara.ac.id/">jituwin 29.online+-</a>
     <a href="https://jurnal.atidewantara.ac.id/">vip555resmijp.online -</a>
     <a href="https://jurnal.atidewantara.ac.id/">bokep jilbab</a>
@@ -11477,7 +11446,6 @@ src="https://www.facebook.com/tr?id=423063207362401&ev=PageView&noscript=1"
     <a href="https://jurnal.atidewantara.ac.id/">saldo166.online -</a>
     <a href="https://jurnal.atidewantara.ac.id/">akun slot</a>
     <a href="https://jurnal.atidewantara.ac.id/">KING77</a>
-    <a href="https://jurnal.atidewantara.ac.id/">jostotofreebet.online -</a>
     <a href="https://jurnal.atidewantara.ac.id/">sbobet887gcrvip.online -</a>
     <a href="https://jurnal.atidewantara.ac.id/">slot777maxwinjp.online -</a>
     <a href="https://jurnal.atidewantara.ac.id/">raja135cuan.online -</a>
@@ -16107,7 +16075,6 @@ src="https://www.facebook.com/tr?id=423063207362401&ev=PageView&noscript=1"
     <a href="https://jurnal.atidewantara.ac.id/">badak178group.site -badakgroup</a>
     <a href="https://jurnal.atidewantara.ac.id/">Slot Gacor min Depo 10k</a>
     <a href="https://jurnal.atidewantara.ac.id/">slot mahjong --kerang123.com</a>
-    <a href="https://jurnal.atidewantara.ac.id/">slot mahjong --jostoto.coms</a>
     <a href="https://jurnal.atidewantara.ac.id/">slot mahjong --80(slot80)com</a>
     <a href="https://jurnal.atidewantara.ac.id/">slotdewa89.vip -win</a>
     <a href="https://jurnal.atidewantara.ac.id/">slotdewa200.com -</a>
@@ -16199,7 +16166,6 @@ src="https://www.facebook.com/tr?id=423063207362401&ev=PageView&noscript=1"
     <a href="https://jurnal.atidewantara.ac.id/">slot zeus juragankoin99</a>
     <a href="https://jurnal.atidewantara.ac.id/">zeus top19.com</a>
     <a href="https://jurnal.atidewantara.ac.id/">zeus www.okebos.co</a>
-    <a href="https://jurnal.atidewantara.ac.id/">situs gacoran --vip(jostotohk.com)</a>
     <a href="https://jurnal.atidewantara.ac.id/">situs slotransats --55(mantra55)</a>
     <a href="https://jurnal.atidewantara.ac.id/">slot88 pragmatic218</a>
     <a href="https://jurnal.atidewantara.ac.id/">slot88 gacor200.wulyf.org</a>
@@ -16288,7 +16254,6 @@ src="https://www.facebook.com/tr?id=423063207362401&ev=PageView&noscript=1"
     <a href="https://jurnal.atidewantara.ac.id/">slotjpe217.online -ok</a>
     <a href="https://jurnal.atidewantara.ac.id/">slotmax108.online -win</a>
     <a href="https://jurnal.atidewantara.ac.id/">slot mahjong --link(rajahoki123)</a>
-    <a href="https://jurnal.atidewantara.ac.id/">slot mahjong --com.jostoto</a>
     <a href="https://jurnal.atidewantara.ac.id/">slot mahjong --asiktoto.org</a>
     <a href="https://jurnal.atidewantara.ac.id/">Slot online -- rajadewa138 com pg</a>
     <a href="https://jurnal.atidewantara.ac.id/">Slot spin</a>
@@ -16362,7 +16327,6 @@ src="https://www.facebook.com/tr?id=423063207362401&ev=PageView&noscript=1"
     <a href="https://jurnal.atidewantara.ac.id/">Situs slot online app</a>
     <a href="https://jurnal.atidewantara.ac.id/">SCORPIO 777 Slot</a>
     <a href="https://jurnal.atidewantara.ac.id/">Situs slot --( japri138</a>
-    <a href="https://jurnal.atidewantara.ac.id/">slot mahjong --jostoto.ne</a>
     <a href="https://jurnal.atidewantara.ac.id/">RTP slot gokil</a>
     <a href="https://jurnal.atidewantara.ac.id/">Slot gacor www mami188 J.Y. com</a>
     <a href="https://jurnal.atidewantara.ac.id/">Slot gacor --@ indojaya168 net</a>
@@ -18681,7 +18645,6 @@ src="https://www.facebook.com/tr?id=423063207362401&ev=PageView&noscript=1"
     <a href="https://jurnal.atidewantara.ac.id/">slot mahjong --tante777</a>
     <a href="https://jurnal.atidewantara.ac.id/">slot mahjong --spbu777.com/a></a>
     <a href="https://jurnal.atidewantara.ac.id/">slot mahjong --vip(kastil777)</a>
-    <a href="https://jurnal.atidewantara.ac.id/">slot mahjong -- online jostoto</a>
     <a href="https://jurnal.atidewantara.ac.id/">bento777top.space -win</a>
     <a href="https://jurnal.atidewantara.ac.id/">bento1234.online -w</a>
     <a href="https://jurnal.atidewantara.ac.id/">megawin888jp.site -a</a>
@@ -18789,7 +18752,6 @@ src="https://www.facebook.com/tr?id=423063207362401&ev=PageView&noscript=1"
     <a href="https://jurnal.atidewantara.ac.id/">linkgacor389win.online -play</a>
     <a href="https://jurnal.atidewantara.ac.id/">situs pragmatic 789.online-x5000</a>
     <a href="https://jurnal.atidewantara.ac.id/">situsbetingslot.com</a>
-    <a href="https://jurnal.atidewantara.ac.id/">slot mahjong --bandar(jostoto)</a>
     <a href="https://jurnal.atidewantara.ac.id/">slotgacortupai.online -tpi</a>
     <a href="https://jurnal.atidewantara.ac.id/">MPO Slot 1221</a>
     <a href="https://jurnal.atidewantara.ac.id/">Slot gacor jaminan WD</a>
@@ -18832,8 +18794,6 @@ src="https://www.facebook.com/tr?id=423063207362401&ev=PageView&noscript=1"
     <a href="https://jurnal.atidewantara.ac.id/">slot777gacor.online -pg</a>
     <a href="https://jurnal.atidewantara.ac.id/">situsGACORcuan.online -oke</a>
     <a href="https://jurnal.atidewantara.ac.id/">panen138world.com -win</a>
-    <a href="https://jurnal.atidewantara.ac.id/">slot mahjong --di(jostoto)</a>
-    <a href="https://jurnal.atidewantara.ac.id/">Slot mahjong -- di jostoto app</a>
     <a href="https://jurnal.atidewantara.ac.id/">slot gaming -- 1 rajamenang1 com</a>
     <a href="https://jurnal.atidewantara.ac.id/">slot gacor -- jp jackpot108i com</a>
     <a href="https://jurnal.atidewantara.ac.id/">Ap777 Slot download</a>
@@ -19032,7 +18992,6 @@ src="https://www.facebook.com/tr?id=423063207362401&ev=PageView&noscript=1"
     <a href="https://jurnal.atidewantara.ac.id/">888duren777betspace -7</a>
     <a href="https://jurnal.atidewantara.ac.id/">mahjong339viponline -win</a>
     <a href="https://jurnal.atidewantara.ac.id/">mahjongwa230online -a</a>
-    <a href="https://jurnal.atidewantara.ac.id/">mahjong --situsjostoto</a>
     <a href="https://jurnal.atidewantara.ac.id/">zeuswin808online -vip</a>
     <a href="https://jurnal.atidewantara.ac.id/">zeuswin858online -wd5jt</a>
     <a href="https://jurnal.atidewantara.ac.id/">zeus369mantapcom -vvip-</a>
@@ -19136,7 +19095,6 @@ src="https://www.facebook.com/tr?id=423063207362401&ev=PageView&noscript=1"
     <a href="https://jurnal.atidewantara.ac.id/">Aplikasi slot 777 BET 200 PERAK</a>
     <a href="https://jurnal.atidewantara.ac.id/">Mahjong 777 online</a>
     <a href="https://jurnal.atidewantara.ac.id/">GOPAY 777 login</a>
-    <a href="https://jurnal.atidewantara.ac.id/">situs mahjong -- daftar jostoto</a>
     <a href="https://jurnal.atidewantara.ac.id/">slotresmi88.co</a>
     <a href="https://jurnal.atidewantara.ac.id/">slotresmi88 alternatif</a>
     <a href="https://jurnal.atidewantara.ac.id/">SLOTWINER</a>
@@ -19512,7 +19470,6 @@ src="https://www.facebook.com/tr?id=423063207362401&ev=PageView&noscript=1"
     <a href="https://jurnal.atidewantara.ac.id/">slotgacorangkasa138.online jos</a>
     <a href="https://jurnal.atidewantara.ac.id/">slotgacorqq15.online win</a>
     <a href="https://jurnal.atidewantara.ac.id/">slotgacor69slotgacorqq15.online win</a>
-    <a href="https://jurnal.atidewantara.ac.id/">slot mahjong on jostoto</a>
     <a href="https://jurnal.atidewantara.ac.id/">slot mahjong on nagatoto168</a>
     <a href="https://jurnal.atidewantara.ac.id/">slot mahjong top nagatoto168</a>
     <a href="https://jurnal.atidewantara.ac.id/">linktoto345.online win</a>
